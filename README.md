@@ -1,2 +1,1 @@
-# awesome_channels
-test 1
+# _awesome channels_
