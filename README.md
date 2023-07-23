@@ -24,3 +24,9 @@
 * [**wendigoon**](https://www.youtube.com/@Wendigoon) :  
     _long videos about historically horrific subjects or media in general + conspiracy theories_
 
+* [**barely sociable**](https://www.youtube.com/@BarelySociable) :  
+    _scary stuff with some more reddit scary stuff and some science tooo_
+
+* [**slightly sociable**](https://www.youtube.com/@SlightlySociable) :  
+    _second channel for barely sociable_
+
