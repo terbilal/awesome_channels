@@ -30,3 +30,9 @@
 * [**slightly sociable**](https://www.youtube.com/@SlightlySociable) :  
     _second channel for barely sociable_
 
+* [**exurb1a**](https://www.youtube.com/@Exurb1a) :  
+    _philosophical fun_
+
+* [**exurb2a**](https://www.youtube.com/@exurb2a114) :  
+    _exurb1a second channel_
+
