@@ -1,4 +1,4 @@
-[yt]: www.youtube.com
+[yt]: https://www.youtube.com
 
 <!---
 
