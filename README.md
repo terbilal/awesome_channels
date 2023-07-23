@@ -9,3 +9,4 @@
 * [**solar sands**](https://www.youtube.com/@SolarSands) :  
     _video essays and deviant art_
 
+![YouTube](https://cdn.emojidex.com/emoji/seal/YouTube.png "YouTube")
