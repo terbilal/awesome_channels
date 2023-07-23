@@ -4,6 +4,6 @@
 
 #### list :
 
-[**channel**](link) :
+* [**channel**](link) :
 
-desc
+ * desc
