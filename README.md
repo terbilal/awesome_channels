@@ -49,7 +49,7 @@
     _kinda new video essay channel with various topic_
 
 * [**fredrik knudson**](https://www.youtube.com/@FredrikKnudsen) :  
-    _down the rabbit, hole need i say more ?_
+    _down the rabbit hole, need i say more ?_
 
 * [**fredrik knudson other channel**](https://www.youtube.com/@fredrikknudsentheotherchan2338/) :  
     _less formal down the rabbit hole_
