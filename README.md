@@ -45,3 +45,18 @@
 * [**dumpstermantv**](https://www.youtube.com/@DumpsterManTV) :  
     _bcz ultrasex :)_
 
+* [**soupemporioum**](https://www.youtube.com/@theoneandonlysoupemporium/) :  
+    _kinda new video essay channel with various topic_
+
+* [**fredrik knudson**](https://www.youtube.com/@FredrikKnudsen) :  
+    _down the rabbit, hole need i say more ?_
+
+* [**fredrik knudson other channel**](https://www.youtube.com/@fredrikknudsentheotherchan2338/) :  
+    _less formal down the rabbit hole_
+
+* [**folding ideas**](https://www.youtube.com/@FoldingIdeas) :  
+    _i hear it's a good essayist channel and it seems really good_
+
+* [**hbomberguy**](https://www.youtube.com/@hbomberguy) :  
+    _great video essays, sometimes political in nature, other times long random video essays_
+
