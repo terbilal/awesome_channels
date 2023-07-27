@@ -60,3 +60,9 @@
 * [**hbomberguy**](https://www.youtube.com/@hbomberguy) :  
     _great video essays, sometimes political in nature, other times long random video essays_
 
+* [**internet historian**](https://www.youtube.com/@InternetHistorian) :  
+    _internet historian_
+
+* [**incognito mode**](https://www.youtube.com/@IHincognitoMode) :  
+    _incognito mode_
+
