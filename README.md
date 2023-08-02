@@ -69,3 +69,6 @@
 * [**dark science**](https://www.youtube.com/@darkscienceyt) :  
     _dark things explained by science_
 
+* [**VSAUCE**](https://www.youtube.com/@Vsauce) :  
+    _Hey vsauce, michel here_
+
