@@ -72,3 +72,6 @@
 * [**VSAUCE**](https://www.youtube.com/@Vsauce) :  
     _Hey vsauce, michel here_
 
+* [**kyle hill**](https://www.youtube.com/@kylehill) :  
+    _random scawy sci stuff_
+
