@@ -82,3 +82,6 @@
 * [**bobbibrocoli**](https://www.youtube.com/@BobbyBroccoli) :  
     _science scandals_
 
+* [**joeseepii or whatever the fuck idk**](https://www.youtube.com/@Joeseppi) :  
+    _whatever nut case idgaf_
+
